@@ -17,6 +17,7 @@ Co: Peb <br>
 He / It / Masc Terms <br> 
 Proship + darkship <br> <br>
 "That's all I ask for... love me, love me!!!" <br> <br> 
-![](https://komarev.com/ghpvc/?username=CCaftoncest)
+![](https://komarev.com/ghpvc/?username=CCaftoncest) <br>
+(we use both simply plural and twinote! Twinote is not a system app but it can log switches, make folders and is styled like twitter / X without needing emails and is on both Android + IOS ^^)
 
 <img width="531" height="20" alt="image" src="https://github.com/user-attachments/assets/3836cdc4-99a1-49c2-b94c-106cd2ac5bee"/>
