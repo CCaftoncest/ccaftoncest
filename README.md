@@ -18,6 +18,9 @@ He / It / Masc Terms <br>
 Proship + darkship <br> <br>
 "That's all I ask for... love me, love me!!!" <br> <br> 
 ![](https://komarev.com/ghpvc/?username=CCaftoncest) <br>
-(we use both simply plural and twinote! Twinote is not a system app but it can switch members, make folders, is styled like twitter / X without needing emails and is on both Android + IOS ^^)
+(we use both simply plural and twinote! Twinote is not a system app but it can switch members, make folders, is styled like twitter / X without needing emails and is on both Android + IOS ^^) <br> <br>
+
+https://docs.google.com/document/d/1lcvPbaeNmeHp9S-HlUh6yykSf6OA_X0vjw36SelCuKE/edit?tab=t.0 <br>
+^^ Sal callout, do not associate with this person.
 
 <img width="531" height="20" alt="image" src="https://github.com/user-attachments/assets/3836cdc4-99a1-49c2-b94c-106cd2ac5bee"/>
